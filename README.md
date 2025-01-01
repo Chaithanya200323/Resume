@@ -1,5 +1,4 @@
 ## Resume
-**objective**
 # Naga Chaitanya SV  
 📞 9108606036 | ✉ [nagachaithanyasv@gmail.com](mailto:nagachaithanyasv@gmail.com)  
 [LinkedIn](https://www.linkedin.com/in/naga-chaitanya-s-v-58901524b)  
